@@ -1,3 +1,3 @@
 ### 👋 Hello there!
 
-I'm Ramil (Rah-mill), and I lead design for Vowel.
+I'm Ramil (Rah-mill), and I lead design for EarnBetter.
